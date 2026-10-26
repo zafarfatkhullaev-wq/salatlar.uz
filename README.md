@@ -1,0 +1,2 @@
+# salatlar.uz
+salatlar.uz
